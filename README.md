@@ -1,1 +1,1 @@
-# mod
+Looking to dive deeper into Minecraft mods and explore some unique gameplay experiences? Check out this cool mod that introduces new interactions and customizations for your world! If you want to enhance your Minecraft adventures, don't miss this one: [Jenny mod](http://jennymodmc.com/) 
